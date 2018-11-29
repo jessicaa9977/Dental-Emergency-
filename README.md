@@ -1,5 +1,4 @@
-# Dental-Emergency-
-Emergency Dental Care Services- Columbus, Dublin, OH
+
 WHAT TO DO IN A DENTAL EMERGENCY
 Dublin Metro DentalLearning how to cope with an Dental emergency situation while its occurring is the best way to prepare. The same is true for dental emergencies. There are many things you can do to prepare for it, such as making sure you have good insurance or that the money is set aside to be able to financially handle the emergency. If you are faced with a dental emergency, here is some information that can help you be prepared:
 What Type of Dental Emergency Is It?
